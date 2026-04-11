@@ -2,5 +2,5 @@
 
 im whatever i want to be ◝(ᵔᗜᵔ)◜
 
-[rentry](https://rentry.co/zweig) ⸝⸝ [aww](https://rentry.co/tashi) ⸝⸝ [atabook](https://crybaby.atabook.org)
+[rentry](https://rentry.co/capsicle) ⸝⸝ [aww](https://rentry.co/tashi) ⸝⸝ [atabook](https://crybaby.atabook.org)
 
